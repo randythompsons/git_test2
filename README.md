@@ -4,3 +4,4 @@ Coding opens doors to well-paying jobs in tech like software development, web de
 Coding teaches you how to break down big problems into small steps.
 
 This sharpens your logical thinking and helps you solve everyday challenges better.
+This sharpens your logical thinking and helps you solve everyday challenges better.
